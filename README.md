@@ -17,4 +17,4 @@ if you use or appreciate any of the compiled files, feel free to use/share them.
 
 
 
-my affiliate link with DMarket : https://dmarket.com?ref=8RPNvnDXGq
+my affiliate link with DMarket, i do make a cut of any purchases made through DMarket : https://dmarket.com?ref=8RPNvnDXGq
